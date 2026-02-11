@@ -7,3 +7,4 @@ im litle late in base onchain working
 i want earn base ,,, you want earn????
 so daily just one trx on base network and increse your wallet acivity
 activity of today,,, you get a benifit in futuer
+i hope you understand whats i saying 
