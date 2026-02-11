@@ -6,3 +6,4 @@ i hope 2026 year is base
 im litle late in base onchain working
 i want earn base ,,, you want earn????
 so daily just one trx on base network and increse your wallet acivity
+activity of today,,, you get a benifit in futuer
